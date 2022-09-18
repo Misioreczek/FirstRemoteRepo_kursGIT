@@ -1,1 +1,1 @@
-# FirstRemoteReop_kursGIT
+Paragon z Warzywniaka
